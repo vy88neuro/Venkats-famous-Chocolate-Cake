@@ -1,0 +1,1 @@
+This recipe is Venkat's famous chocolate cake with butter cream frost. With the softness of the buttercream and the moistness of the cake it really is choclatey heaven. The smooth buttercream allows for intricate designs on your cake. It always comes out flat :)
